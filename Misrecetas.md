@@ -13,3 +13,4 @@
 5. Cocinar en una sartén hasta que esté cuajada.
 6. servir la tortilla 
 7. odio la tortilla de patata 
+8. Ultimo
